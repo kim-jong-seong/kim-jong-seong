@@ -1,7 +1,10 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Ubuntu&weight=700&size=30&pause=4000&color=000000B6&background=FFEE89C5&center=true&vCenter=true&random=false&width=800&height=150&lines=Hello.+My+name+is+Jong+Seong.+:&#41;)](https://git.io/typing-svg)
 <!-- https://readme-typing-svg.demolab.com/demo/ -->
 
-
+<p></p>
+<p></p>
+<p></p>
+<p></p>
 
 
 
